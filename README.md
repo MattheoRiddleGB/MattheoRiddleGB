@@ -7,7 +7,10 @@ $$\color{#640B11}{\text{\small{Mattheo Riddle .ᐟ }}} $$ $$\color{#787878}{\tex
 <img src="https://github.com/user-attachments/assets/95ec3378-d40c-4cbc-bc98-244fdc443673" />
 
 
-
+<a href="https://pinkie-sinngokublack.atabook.org/"><i>Ata</i></a>
+  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://pinkie-sinngokublack.straw.page"><i>Straw</i></a>
+  
 $$\color{#640B11}{\text{\small{Pinkie}}}$$
 
 $$\color{#787878}{\text{\small{She 𓏵 Her}}}$$
