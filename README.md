@@ -10,7 +10,7 @@ $$\color{#640B11}{\text{\small{Mattheo Riddle .ᐟ }}} $$ $$\color{#787878}{\tex
 
 <a href="https://pinkie-sinngokublack.atabook.org/"><i>Ata</i></a>
   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-  <a href="https://pinkie-sinngokublack.straw.page"><i>Straw</i></a>
+  <a href="https://mattheoriddlegokublack.straw.page"><i>Straw</i></a>
 
 $$\color{#640B11}{\text{\small{Pinkie}}}$$
 
